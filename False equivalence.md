@@ -1,4 +1,4 @@
-# False Equivalence and related issues.
+# False Equivalence, etc.
 
 I was talking the other day with a friend, telling a story in which I had been wronged.
 
