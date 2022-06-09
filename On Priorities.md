@@ -75,5 +75,5 @@ It can get a little more complicated if the conflict is between two other direct
 # Appendix B: Mentioned topics, clearly not major priorities, but unclear connections to the larger themes
 
 -   Sexuality
--   The appropriate roles of women in the church
+-   Gender roles
 -   How to engage governments and worldly power
