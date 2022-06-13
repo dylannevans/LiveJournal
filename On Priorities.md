@@ -74,6 +74,11 @@ It can get a little more complicated if the conflict is between two other direct
 
 # Appendix B: Mentioned topics, clearly not major priorities, but unclear connections to the larger themes
 
--   Sexuality
+-   Which sexual activities are wrong.
+-   The mechanics of the trinity.  
 -   Gender roles
 -   How to engage governments and worldly power
+
+# Appendix C: Mentioned topics, not a lot of time spent, clear connection to larger themes, but hard/impossible for humans to totally grasp
+-   Human qualities attributed to God.  For instance: are the emotions attributed to God literal truth, or just a helpful way to explain God's perspective as if he were human to get us in the right frame of mind?  
+-   the aspects of God outside the human experience: transcendence of uncertainty, omnipotence, why he did it this way.
