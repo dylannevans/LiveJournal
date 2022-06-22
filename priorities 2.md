@@ -1,5 +1,3 @@
-The culture of
-
 I noticed that I become most angry when people
 
 -   condescend to me.
