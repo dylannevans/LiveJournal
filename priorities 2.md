@@ -3,7 +3,7 @@ I noticed that I become most angry when people
 -   condescend to me.
 -   Contradicts me with no explanation.
 -   are disrespectful to me.
--   lie to me. The more unbelievable the lie, the angrier I am likely to be.
+-   lie to me. 
 
 When these situations occur, my default reaction is to have a conversation with the speaker about their perspective and mine.
 
@@ -13,7 +13,7 @@ Why?
 
 I believe most people who identify with the first component believe it is a universal human trait. It meshes well with narratives from psychology, religion, and history. Definitionally, insults damage someone’s self-perception of value, and our culture has many examples of how cultures have found them justifiable grounds for war or aggression. Most “best practices” promoted by psychology works to reduce the likelihood that the listener will mistake a statement for an insult. For instance, I statements, open-ended questions, and NVC.
 
-The second is similar. The people who follow it think it a universal trait, but because there are enough people who don’t, need an explanation for them. The most common explanation is some combination of stupid, damaged, or unskilled at expressing their emotions. If those people thought hard enough about it or went to enough therapy, they would also learn that the right approach to conflict is to unpack it.
+The second is similar. The people who follow it think it a universal trait, but because there are enough people who don't match, need an explanation for those outliers. The most common explanation is some combination of stupid, damaged, or unskilled at expressing their emotions. If those people thought hard enough about it or went to enough therapy, they would also learn that the right approach to conflict is to unpack it.
 
 While stupid+damaged+unskilled sounds harsh written out, recognize that this is the most common narrative people use internally to explain any large differences in opinion. Many use softer abstractions like “cycle of violence,” “religious fundamentalist,” “elites,” “immature,” “inexperienced,” “Stockholm syndrome,” or “uneducated” to avoid sounding like they feel superior, but this is usually a lie. These are just possible explanations for *why* the other person is bad at thinking. If someone uses them, their core (implicit) assessment is still that the other person is stupid, damaged, and/or unskilled at thinking.
 
