@@ -31,7 +31,8 @@ Dogs are easy to love.  You take them on walks, you let them be around you, and 
 
 Loving a person is much harder. People are mean and selfish and manipulative and tired and have weird hangups.  
 
-The most defining feature of being human is having agency - the ability to think and make decisions.  In a sense, this is God's greatest gift and greatest curse to us.  
+The most defining feature of being human is having agency - the ability to think and make decisions.  In a sense, this is God's greatest gift and greatest curse to us. 
+
 If you love someone, you want what's best for them and you exert effort toward that end.  The hardest part of doing that is honoring that person's agency - considering them a continually-failing, continually-learning thinker, continually rebelling against God and continually striving toward God, confused as heck.  
 
 It is so easy to see examples or even patterns of a person's failure and conclude what's best for them is to stop deciding - clearly, they aren't very good at it.  What's best for them is for someone better to fix it for them.  
