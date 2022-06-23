@@ -38,5 +38,5 @@ But that isn't love.  That is treating someone like a dog.
 
 Love means honoring someone's agency.  God created them as a person, with thoughts and emotions and complicatedness and the ability to choose. Do not second-guess God. Love them into personal and relational learning - ask them hard questions, tell them hard truths, set good boundaries, listen to their challenges, put them on no pedestals, and support their growth toward God, _even when they choose notGod_. 
 
-#Todo: write the corrolary about how love also includes attending the physical needs. 
+# Todo: write the corrolary about how love also includes attending the physical needs. 
 Do you love me? Feed my sheep.  James, pharisees, What is love? the samaritan.  Scene from the Help about that sanctimonious refusal to help.
