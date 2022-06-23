@@ -76,6 +76,8 @@ With people who frequently make the conclusion -\> assumption substitution, I so
 
 ## My realization
 
+When I was young, I was inculcated with a prohibition to ever conceive that someone else could have malicious intent.  People were just broken, I was taught, and if you love them and teach them enough, they will become the true paragons of grace and love they always were, waiting to break free.  I was also taught that all wrong actions are either mistakes, miscommunications, or differences in style, and in all cases talking it out will reliably resolve the issue.  
+
 There are a lot of problems with this model, but one of the most important is that people truly do have different priorities. If someone’s priority is power and your wellbeing doesn’t support that goal, no amount of “talking it out” will clarify their malicious actions to just be mistakes or miscommunications. At worst, talking it out might push you further down an incorrect path – they might lie to you, possibly telling you what you want to hear and letting you delude yourself into thinking the problem solved.
 
 This finally broke in June 2017 when I was overcome with overwhelming evidence that my wellbeing was immaterial to someone I knew. I knew this person well enough that all possibility of my previous model was eliminated: the only remaining possibility was that they just didn’t care about me. This contradicted what I had been taught; because no amount of talking would resolve that difference of intent.
