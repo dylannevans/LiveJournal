@@ -7,8 +7,10 @@ The following can be reframed as each other:
 
 ## Crazy Idea #38: Election isn’t superiority
 either morally or in value.  
+
 Consider who Jesus sought: the pathetic, the stupid, the sinful.  He made this explicit with the sermon on the mount. Consider the story of the lost lamb, and the commensurate rejoicing in heaven.  Consider Paul's quote about his perfection to the law a loss. God does not love the righteous more.  
 Jesus indicates no correlation between those he calls and God's love.  There was nothing special about his apostles, just as Moses wasn't that amazing, and the only amazing thing about Abraham was his trust. 
+
 We know that some people feel God's voice and actions louder and heavier than others.  Many do not see God at all. God must be choosing who to speak to.  
 Paradoxically, the people that seem to be most aware of God are those that have the biggest problems, the ones to whom his instructions seem most difficult.  Oddly, pain and frustration and evil are the best reminders of God: You don't know what you got till it's gone and [No one's laughing at God when they're starving or freezing or so very poor](https://www.youtube.com/watch?v=-pxRXP3w-sQ).
 
@@ -21,7 +23,7 @@ Even if you're born rich and privileged, God calls you to be your most beautiful
 # What it means to be human
 If you depend on someone and you only care for their physical wellbeing, how is that any different than a savvy zookeeper ensuring the health of their animals? How is it different than ensuring the health of a slave?  In each case, their good health benefits you - the first because a sick animal doesn't sell tickets very well, and the second because a sick slave has diminished output.  
 
-Some people say that they sometimes wish they had been born a golden retriever living with an upper-middle-class family.  It would be a pretty sweet gig: programmed from birth to be all-loving and enthusiastic, every physical need taken care of, no expectations, and no struggle.  
+Some people wish they had been born a golden retriever living with an upper-middle-class family.  It would be a pretty sweet gig: programmed from birth to be all-loving and enthusiastic, every physical need taken care of, no expectations, and no struggle.  
 
 But it would be life on rails.  No struggle, no expectations, and no growth.  Everyone knows how your life will go.  
 
