@@ -1,6 +1,6 @@
 # Intro
 
-These words represent my best attempt at summarizing the most important ideas about my faith, and I suspect orthodox Christianity in general. I wrote 3 versions: Long (800 words), Medium (200 words), and Short (100 words). See Appendix A for the reasoning behind the approach I chose.
+These words represent my best attempt at summarizing the most important ideas about my faith, and I suspect orthodox Christianity in general. It focuses on the "Why" and "How", and less on "What." There are three versions: Long (700 words), Medium (200 words), and Short (100 words). See Appendix A for design considerations.
 
 ## Top questions
 
@@ -16,47 +16,45 @@ Which of these ideas is least important? Do the Short and Medium versions focus 
 
 **I lie to myself**. I blame others for my failures. I try to distract myself from my inadequacy. I think I deserve pleasure and resent God&#39;s direction. I credit good circumstance and God&#39;s blessings to my own virtue. I focus on easy unhelpful things instead of hard, good things.
 
-**I am a hypocrite**. I think I&#39;m pretty great; definitely better than average. I am impatient with the failures of others; I judge myself by my intent and others by their actions. My motives are backwards: looking good in front of others doesn&#39;t do God any favors.
+**I am a hypocrite**. I think I&#39;m pretty great. I am impatient with the failures of others; I judge myself by my intent and others by their actions. I try to impress and please others.
 
-**I am selfish**. I prioritize my pleasure and convenience over others. I resent the failures of people around me and their impact on me. I ignore many opportunities to love people around me out of fear and complacency.
+**I am selfish**. I prioritize my pleasure and convenience. I resent the failures and wrongness of others. I ignore opportunities to love those around me.
 
-**I am afraid.** I fear not being in control. I fear feeling incompetent, being taken advantage of, feeling worthless, wasting my time, and other people being wrong.
+**I am afraid.** I fear feeling incompetent, being taken advantage of, feeling worthless, and wasting my time. I avoid that fear by trying to control people and situations. 
 
-**I seek idols**. I lie to myself that success in my work, in people&#39;s perception of me, that my family justifies my worth, and that I have control over others. I worry about things I can&#39;t change, and I spend too much time reliving unproductive fear, anger, and hurt.
+**I seek idols**. I deceive myself that achievement, other&#39;s positive perceptions, and correctness justifies my worth. I seek immersive distractions from my failure and shame. I worry about things I can&#39;t change, and I get stuck reliving fear, anger, and hurt.
 
 **I continue to choose sin**. I take God and everything he&#39;s done for granted.
 
 ## My life
 
-**I live in a broken world**. I live in a world and society where selfishness and malice yield fortune and respect. Sin, stupidity, pain, ignorance, and death are everywhere. I hate it but see how it reminds us of our need for God.
+**A broken world**. I live where selfishness and malice yield fortune and respect. Failure, stupidity, pain, ignorance, and death are everywhere. I hate it but see how it reminds us of our need for God.
 
-**God loves me**. He continues to love me; so much that he sacrificed himself, his only son to save me. He has shown that he wants good things from me. There&#39;s nothing I can do to deserve or merit his attention or respect: he chooses to place worth on me and love me. I should respect that decision and follow his example.
+**God loves me**. He continues to love me; so much that he sacrificed himself, his only son to save me. He has shown that he wants good things from me. There is nothing I can do to merit his attention or respect. He chooses to value and love me. 
 
-**God knows my continual sin**. He knows how I continue to reject him, his direction, and his love. He sees how I do what I think is best instead of listening to him. He sees past my failure to the perfect design that he will someday restore me and the world to.
+**God knows my continual sin**. He knows how I continue to reject him, his direction, and his love. He sees past my failure to the perfect design that he will someday restore me and the world to.
 
-**God wants better things for me than I do.** Every year God teaches me things about myself and the world. God&#39;s plan for me ends up better in ways I never conceived until they are realized. I believe God when he promises a final end to suffering, evil, selfishness, and stupidity.
+**God wants better things for me than I do.** God teaches me things about myself and the world. God&#39;s plan for me ends up better in ways I never conceived until they are realized. I believe God when he promises a final end to suffering, evil, selfishness, and stupidity.
 
 ## My need
 
-I need a helper and a partner and a savior. I accept God&#39;s offer to be all those things for me.I want God to be close to me, be loud in my life, and overwhelm me with his presence. I look forward to being part of God&#39;s plan. I want to see the things he&#39;s promised come true.
+I need help. I accept God&#39;s offer of love and direction. I want God to be close to me, be loud in my life, and overwhelm me. I look forward to being part of God&#39;s plan. I want to see the things he&#39;s promised come true.
 
 ## My response
 
 With God&#39;s help,
 
-**I will love God with everything**. I will be humble and happy to help with the roles and tasks he asks. I will seek the spirit of a toddler, eager to help however I can. I will seek the joy of a toddler, happy to just be with God.
+**I will love God**. I will be humble and happy to help with the roles and tasks he asks. I will seek an uncomplicated attitude, happy to be with God and eager to help however he asks.
 
-**I will love everyone around me, including me**. Through my words and actions, I will persuade people around me that they have great value, are worth loving, and are capable of creating good. I will be generous with my time and resources under my control. I will respect people and the worth God puts in them, the traits God gives them, and the opportunities and challenges God sets before them. I will support everyone in growth towards God.
+**I will love people**. Through my words and actions, I will persuade people around me that they have great value, are worth loving, and are capable of creating good. I will be generous with my time and resources. I will respect people and the worth God puts in them, the traits God gives them, and the opportunities and challenges God sets before them. I will support everyone in growth towards God.
 
-**I will respond in gratitude and humility**. I will follow God&#39;s directions and humbly help him in whatever ways he asks, even if they aren&#39;t fun. I will love God and trust him. I will be content and satisfied in the value he places in me. I will seek the wisdom to know when I can add value, and how. I will strive for patience and listen to those around me.
+**I will grow**. I will apply effort toward the lessons He presents. I will follow God&#39;s direction with gratitude and humility, even if they aren&#39;t fun. I will not fall into defensiveness, blame, helplessness, or self-deception about my failures; I will appreciate His ongoing investment in me. In slow periods, I will embrace rest. In periods of activity, I will embrace work.
 
-**I will embrace opportunities in every situation I find**. In slow times, I will rest, watch, and listen, peacefully taking the time God gives me to relax. In times of greater activity, I will listen carefully and help humbly, lovingly, and joyfully.
+**I will reject fear**. I will trust God and his path. I will follow directions when &quot;failure&quot; seems certain. 
 
-**I will not be afraid**. I will trust God and his path. I will seek God&#39;s peace when I can&#39;t see indicators of success. I will follow God&#39;s directions, even when &quot;failure&quot; seems certain.
+**I will reject the world&#39;s corrupting influence**. I will notice lies and evil within myself, those around me, and the systems I participate in. I will address them strategically and productively.
 
-**I will reject the world&#39;s corrupting influence**. I will notice implicit lies and the lines between good and evil. I will address them strategically and productively.
-
-**I will stay focused on God&#39;s priorities for me**. I will pursue his words for me, whether in the Bible, from other people he&#39;s inspired, or through prayer.
+**I will stay focused on God&#39;s priorities**. I will follow his words for me in the Bible, from those around me He inspires, and through prayer.
 
 # Medium
 
