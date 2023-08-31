@@ -4,4 +4,4 @@ A collection of thoughts on faith, coming from orthodox christianity.  Some are 
 
 I'd love to hear your thoughts; feel free to comment via issues or discussions.
 
-Fork as you'd like, GPG.  
+Fork as you'd like, Creative Commons BY-NC-SA.  
