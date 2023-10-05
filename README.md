@@ -16,5 +16,4 @@ I'd love to hear your thoughts; feel free to comment via issues or discussions.
   - A humble declaration of faith, accessible from my professional platforms but not distractingly so. 
 
 
-
-Fork ideas as you'd like, Creative Commons BY-NC-SA. 
+[Dylan's LiveJournal](https://github.com/dylannevans/LiveJournal) © Apr 3, 2022 by [Dylan Evans](https://saltyonsecurity.net/) is licensed under  [Attribution-NonCommercial-ShareAlike 4.0 International  ![](https://chooser-beta.creativecommons.org/img/cc-logo.f0ab4ebe.svg)![](https://chooser-beta.creativecommons.org/img/cc-by.21b728bb.svg)](http://creativecommons.org/licenses/by-nc-sa/4.0/?ref=chooser-v1)
