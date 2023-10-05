@@ -10,7 +10,7 @@ I'd love to hear your thoughts; feel free to comment via issues or discussions.
   - I need to be able to record other perspectives, dissent, and collaboration from my partners in this journey. The Issues and Discussions features are a good fit for this.
   - Excellent resiliency. It's gonna take the end of the world to knock github over.
 - Why is this public? 
-  - Meet the spirit of AA: do not go gentle into the temptation to front a narrative that you are basically fine. I am not fine. I need help. I cannot be who I want to be without assistance.
+  - Meet the spirit of AA: do not go gentle into the temptation to front a narrative that you are basically fine. I am not fine. [I need help](https://saltyonsecurity.net/help-personal/). I cannot be who I want to be or do what I want to do without assistance from God and my neighbors, however inconveniently that assistance is rendered.
      - Bonus: My vulnerability extends safety to others to admit that they are not fine.
   - The only way to consistently guard against the temptation to hide your <flaws|failures|sins|bad habits|suck> is to be open about them. While confession works great, this LJ is an exploration of radical confessionism: telling the world about my suck is the most binding way to avoid that trap.
   - A humble declaration of faith, accessible from my professional platforms but not distractingly so. 
