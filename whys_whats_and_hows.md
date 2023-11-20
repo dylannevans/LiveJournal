@@ -6,6 +6,7 @@ Whys and Hows are always much more challenging than Whats. Consider a fat person
  - "I recognize that God has made my body holy and beautiful, and I want to honor his work and investment."
  - "I want less physical pain in my life."
  - "My spouse communicates that I am less valuable or virtuous because of my weight. I want them to value me, so I will change myself to match their desires."
-Without good Whys, this person will perform this action 
 
-Even if they have a Why important to them, it only becomes real if they figure out Hows. Success is 90% execution. 
+Without good Whys, this person will perform the What only as long as it's easy or they have nothing better to do.
+
+Even if they have a Why important to them, it only becomes real if they figure out Hows. Success is 90% execution: identifying and doing their next right step. 
